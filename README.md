@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **flutter and react**
 
-- 📫 How to reach me **azazali786abc@gmail.com**
+- 📫 How to reach me **azaz.2101177ec@iiitbh.ac.in**
 
 - ⚡ Fun fact **I am Singer🎸**
 
